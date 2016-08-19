@@ -13,8 +13,8 @@ Hilarious and delightful... and she's studying computer science
 
 ## Podcasts
 **Mentoring Moments: Women you may never meet will become your mentors.**  
-http://www.forbes.com/podcasts/mentoring-moments
-Inspiring stories and advice from women in all kinds of careers
+http://www.forbes.com/podcasts/mentoring-moments  
+Inspiring stories and advice from women in all kinds of careers  
 
 ## Videos
 **Unconcious Bias Training @Google**  
